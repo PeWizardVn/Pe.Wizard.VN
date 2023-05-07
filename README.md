@@ -1,2 +1,2 @@
 # Pe.Wizard.VN
-Ffggghh
+WellCome To Sever Wizard
